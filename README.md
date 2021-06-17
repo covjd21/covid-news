@@ -12,8 +12,9 @@
 11. [3,752 people have died in Scotland, within 28 days of a vaxxine, detail report page 8](https://beta.isdscotland.org/media/9180/21-06-09-covid19-publication_report.pdf)
 12. [HOW TO SEE VACCINE DEATHS ON US CDC WEBSITE HOW TO USE IT.](https://www.bitchute.com/video/WSvIGBEd2bw1/)
 13. [CDC VAERS REPORTED COVID VACCINE DEATHS IN 6 MONTHS SURPASS VACCINE DEATHS OVER 20 YEARS](https://www.bitchute.com/video/ycM5dgnDmb5G/)
-14. [Vaccine Deaths Collection 1](https://thecovidblog.com/)
-15. [Vaccine Deaths Collection 2](https://theempoweror.com/)
+14. [Man Tells School Board: “If You Force The Vaccine On Our Kids, It Will Be 1776 All Over Again!”](https://welovetrump.com/2021/06/16/man-tells-school-board-if-you-force-the-vaccine-on-our-kids-it-will-be-1776-all-over-again/)
+15. [Vaccine Deaths Collection 1](https://thecovidblog.com/)
+16. [Vaccine Deaths Collection 2](https://theempoweror.com/)
 
 # COVID VACCINE REACTION
 1. [BLOOD CLOTS FROM ASTRAZENECA](https://www.bitchute.com/video/maIWyV3QalG1/)
